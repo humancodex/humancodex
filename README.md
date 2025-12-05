@@ -1,6 +1,6 @@
 
 
-## Hello! I’love to talk about the future, art and new ideas 
+## Hello! I lets explore the future, art and new ideas 
 
  
 - 🔮 I love to collaborate on **Blockchain - AI** STUFF
